@@ -32,9 +32,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Obiections: answered by way of dialogue wherein is proved by the Law of God: by the law of our land:
+To all that truely wiſh Ieruſalems proſperity, & Babilons deſtruction, wiſedome & vnderſtanding be m
 #####Body#####
-Obiections: answered by way of dialogue wherein is proved by the Law of God: by the law of our land:
+Antichriſtian.VVhy come you not to Church?Chriſtian.What ſhould I do there?A.VVorſhip God.C.I muſt w
 **Types of content**
 
   * There are 207 **drama** parts! This is **prose drama**.
